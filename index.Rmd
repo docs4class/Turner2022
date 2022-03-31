@@ -26,8 +26,8 @@ This website serves as schedule headquarters for the **2022 Turner Reunion**.
 
 Turner Family Reunion
 
-- Start Date: Monday, June 27, 2022
-- End Date: Wednesday, July 6, 2022
+- Hotel Block Start Date: Monday, June 27, 2022
+- Hotel Block End Date: Wednesday, July 6, 2022
 - Last Day to Book: Friday, June 10, 2022
 - Hotel(s) offering your special group rate:
 - Greenville Marriott for 99 USD per night, includes breakfast
@@ -77,6 +77,6 @@ After the official reunion, our hope is that everyone hangs out at the pool and/
 
 ## Neat Parting Memory  {-}
 
-```{r, echo=FALSE, , out.width = '77%'}
+```{r, echo=FALSE, , out.width = '100%'}
 knitr::include_graphics("images/brothers.jpg")
 ```
