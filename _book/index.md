@@ -1,7 +1,7 @@
 --- 
 title: "2022 Turner Reunion"
 author: "The Jim & Dianne Turner Clan"
-date: "`r Sys.Date()`"
+date: "2022-03-31"
 site: bookdown::bookdown_site
 documentclass: book
 # url: your book url like https://bookdown.org/yihui/bookdown
@@ -77,6 +77,4 @@ After the official reunion, our hope is that everyone hangs out at the pool and/
 
 ## Neat Parting Memory  {-}
 
-```{r, echo=FALSE, , out.width = '77%'}
-knitr::include_graphics("images/brothers.jpg")
-```
+<img src="images/brothers.jpg" width="77%" />
