@@ -43,7 +43,7 @@ Turner Family Reunion
 **Thursday, June 30, 2022**
 
 - Optional day trips for hikes to mountaintops or waterfalls, Greenville zoo and playground, and tours of falls park downtown Greenville
-- Optional group dinner at hotel
+- Optional group dinner, location TBD
 - Cousin's nightout
 
 As we get closer to this date, we may try to get a rough headcount for dinner, and then we will reserve a meeting room at either a local barbecue or seafood restaurant. More details to come!
@@ -51,8 +51,8 @@ As we get closer to this date, we may try to get a rough headcount for dinner, a
 **Friday, July 1, 2022** 
 
 - LEISURELY Breakfast at the hotel
-- Lake day on Lake Hartwell 10 AM to 4 PM
-- Optional Group dinner, location TBD
+- Lake day on Lake Hartwell 10 AM to 4 PM (Fun fact: you have the chance to sit where the photo below was taken!)
+- Optional Group dinner at hotel
 
 We have a herd of kid and adult size lifejackets, **but if you have access to lifejackets, please bring them.** We would like for everyone to wear them. **The lake will be very, very busy this weekend** – this will be the busiest day of the year at the lake. Also, don't where I really nice bathing suit, as all the boats on the lake will kick up the mud and give a nice permanent orange tint whatever you wear!
 
