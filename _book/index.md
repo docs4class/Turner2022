@@ -53,11 +53,13 @@ As we get closer to this date, we may try to get a rough headcount for dinner.  
 
 - LEISURELY Breakfast at the hotel
 - Lake day on Lake Hartwell 10 AM to 4 PM (Fun fact: you have the chance to sit where the photo below was taken!)
-- Optional Group dinner at hotel
+- Dinner on your own 
 
 We have several kid and adult size lifejackets to share, **but if you have access to lifejackets, please bring them.** We would like for everyone to wear them. **The lake will be very, very busy this weekend** – the busiest of the year. Also, don't wear a really nice bathing suit, as all the boats on the lake will kick up mud and give a nice permanent orange tint to whatever you wear!
 
-The group dinner on this evening will likely be very very casual and probably at the hotel.  We imagine people will be straggling back from the lake and other daily activities at random times. Some may even be tired!
+We will also have hotdogs, watermelon and chips for lunch at the lake.
+
+There is not a planned dinner for this evening.  We imagine people will be straggling back from the lake and other daily activities at random times. Some may even be tired!  I am sure there will be people hanging out at the hotel pool for those inclined.
 
 
 **Saturday, July 2, 2022**
