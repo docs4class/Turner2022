@@ -43,7 +43,7 @@ Turner Family Reunion
 **Reunion Headquarters: Hospitality Room at the Hotel**
 
 - We have full-time use of a hospitality room at the hotel for all three days -- this will be the place to meet, mingle, catch up, share photos and family updates, and make plans!!!  This is official **Reunion Headquarters**
-- This is a private, air conditioned room right off the pool with direct access and views of the pool  -- the room is **AWESOME**
+- This is a private, air conditioned room right off the pool with private restrooms and direct access and views of the pool  -- the room is **AWESOME**
 
 **Thursday, June 30, 2022**
 
