@@ -48,15 +48,16 @@ Turner Family Reunion
 **Thursday, June 30, 2022**
 
 - LEISURELY Breakfast at the hotel
+- **PLAY, PLAY, PLAY** at the hotel pool (it is wonderful)
 - Optional **on-your-own** day trips for hikes to mountaintops or waterfalls, Greenville Zoo and playground, or tours of Falls Park, or downtown Greenville
-- Optional group dinner at **Silver Bay** at 6 pm at 916 NE Main St., Simpsonville, SC 29681 (pay your own way)
+- Optional group dinner at **Silver Bay** at 6 pm at 916 NE Main St., Simpsonville, SC 29681 (pay your own way). 864-228-9705.  **A headcount poll will go out via GroupMe.**
 
 As we get closer to this date, we may try to get a rough headcount for dinner.  Then we will reserve a meeting room at either a local barbecue or seafood restaurant. More details to come!
 
 **Friday, July 1, 2022** 
 
 - LEISURELY Breakfast at the hotel
-- Lake day on Lake Hartwell 10 AM to 4 PM (Fun fact: you have the chance to sit where the photo below was taken!)
+- Lake day on Lake Hartwell 10 AM to 4 PM (Fun fact: you have the chance to sit where the photo below was taken!)  **A headcount poll will go out via GroupMe.**
 - Lake House address:  1120 Pine Lake Drive, Townville SC 29689
 - Amenities at the lake house are **rustic chic**
 - Dinner on your own 
@@ -71,7 +72,7 @@ There is not a planned dinner for this evening.  We imagine people will be strag
 **Saturday, July 2, 2022**
 
 - LEISURELY Breakfast at the hotel
-- Official Turner reunion 10 AM until noon at Hotel
+- Official Turner reunion 10 AM until noon at Hotel **A headcount poll will go out via GroupMe.**
 - Lunch at Hotel noon until 1:30 PM
 - Pool time at hotel 1:30 until ....
 
