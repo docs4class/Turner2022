@@ -52,14 +52,14 @@ Turner Family Reunion
 - Optional **on-your-own** day trips for hikes to mountaintops or waterfalls, Greenville Zoo and playground, or tours of Falls Park, or downtown Greenville
 - Optional group dinner at **Silver Bay** at 6 pm at 916 NE Main St., Simpsonville, SC 29681 (pay your own way). 864-228-9705.  **A headcount poll will go out via GroupMe.**
 
-As we get closer to this date, we may try to get a rough headcount for dinner.  Then we will reserve a meeting room at either a local barbecue or seafood restaurant. More details to come!
+We will need to get a headcount for dinner.  Then we will reserve a meeting room at  **Silver Bay** at 6 pm at 916 NE Main St., Simpsonville, SC 29681 (pay your own way). 864-228-9705.
 
 **Friday, July 1, 2022** 
 
 - LEISURELY Breakfast at the hotel
 - Lake day on Lake Hartwell 10 AM to 4 PM (Fun fact: you have the chance to sit where the photo below was taken!)  **A headcount poll will go out via GroupMe.**
 - Lake House address:  1120 Pine Lake Drive, Townville SC 29689
-- Amenities at the lake house are **rustic chic**
+- Gentle Warning: Amenities at the lake house are **rustic chic**
 - Dinner on your own 
 
 We have several kid and adult size lifejackets to share, **but if you have access to lifejackets, please bring them.** We would like for everyone to wear them. **The lake will be very, very busy this weekend** – the busiest of the year. Also, don't wear a really nice bathing suit, as all the boats on the lake will kick up mud and give a nice permanent orange tint to whatever you wear!
